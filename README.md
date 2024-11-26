@@ -29,8 +29,8 @@ I’m constantly expanding my knowledge in:
 - Personal growth and balance are my top priorities!  
 
 ## 📫 Let’s Connect  
-- **LinkedIn:** [Safwan Ashraf](https://www.linkedin.com/in/safwan-ashraf)  
-- **Email:** [yourname@gmail.com](mailto:3.safwanashraf@gamil.com)  
-- **GitHub:** [SafwanA](https://github.com/Safwanashraf)  
+- **LinkedIn:** [Safwan-ashraf](https://www.linkedin.com/in/safwan-ashraf)  
+- **Email:** [3.safwanashraf@gmail.com](mailto:3.safwanashraf@gamil.com)  
+- **GitHub:** [Safwanashraf](https://github.com/Safwanashraf)  
 
 ---
