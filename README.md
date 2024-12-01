@@ -30,7 +30,7 @@ I’m constantly expanding my knowledge in:
 
 ## 📫 Let’s Connect  
 - **LinkedIn:** [Safwan-ashraf](https://www.linkedin.com/in/safwan-ashraf)  
-- **Email:** [3.safwanashraf@gmail.com](mailto:3.safwanashraf@gamil.com)  
+- **Email:** [1.safwanashraf@gmail.com](mailto:1.safwanashraf@gamil.com)  
 - **GitHub:** [Safwanashraf](https://github.com/Safwanashraf)  
 
 ---
