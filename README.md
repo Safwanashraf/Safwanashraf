@@ -25,7 +25,7 @@ I’m constantly expanding my knowledge in:
 
 ## 💡 Fun Facts  
 - I’ve worked in **EdTech**, helping guide over 300 students into coding.  
-- I love exploring creative ways to turn ideas into impactful products.  
+- I love exploring creative ways to turn ideas into impactful products. 
 - Personal growth and balance are my top priorities!  
 
 ## 📫 Let’s Connect  
