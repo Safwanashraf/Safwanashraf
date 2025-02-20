@@ -32,5 +32,3 @@ I’m constantly expanding my knowledge in:
 - **LinkedIn:** [Safwan-ashraf](https://www.linkedin.com/in/safwan-ashraf)  
 - **Email:** [1.safwanashraf@gmail.com](mailto:1.safwanashraf@gamil.com)  
 - **GitHub:** [Safwanashraf](https://github.com/Safwanashraf)  
-
-[![GitHub Streak](https://github.com/?user=safwanashraf&theme=dark)](https://git.io/streak-stats)
